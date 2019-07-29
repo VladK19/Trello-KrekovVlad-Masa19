@@ -1,0 +1,1 @@
+# Trello-KrekovVlad-Masa19
